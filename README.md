@@ -1,0 +1,2 @@
+# devganarzay.github.io
+Partner
